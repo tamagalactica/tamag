@@ -1,1 +1,0 @@
-# tamagalactica.github.io
